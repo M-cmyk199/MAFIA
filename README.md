@@ -1,7 +1,7 @@
-UPDATE DONE V 3.002 🥷🏻🇦🇱
+UPDATE DONE V 4.02 🥷🏻🇦🇱
 Piad COMMAND ENJOY
 
-💀  M1 ✅ M2 ✅ m3 ✅
+ M1 ✅ M2 ✅
 
 
 rm -rf MAFIA 
