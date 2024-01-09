@@ -1,7 +1,7 @@
 UPDATE DONE V 3.8 🥷🏻🇦🇱
-FREE COMMAND ENJOY
+Piad COMMAND ENJOY
 
-💀  M1 ✅ M2 ✅
+💀  M1 ✅ M2 ✅ m3 ✅
 
 
 rm -rf MAFIA 
